@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @MishraCh
+- 👋 Hi, I’m Chandan Mishra
 - 👀 I’m a product manager , I love to code and building scalable products that customers love is my day2day life.
 - 📫 Reach me on chandanmshr271@gmail.com, linkedin (https://www.linkedin.com/in/chandan-mishra-pec/)
